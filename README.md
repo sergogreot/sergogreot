@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sergogreot
+- 👀 I’m interested in AL, MF,CDF.
+- 🌱 I’m currently learning.
